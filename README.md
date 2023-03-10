@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 💬 Ask me about People, Culture & recruitment - We're hiring!
+- 💬 Ask me about People, Culture & recruitment - [We're hiring!](https://www.ssw.com.au/ssw/Employment/default.aspx)
 - 🔭 I work at SSW https://www.ssw.com.au/people/lucia-sirtori
 - 📫 How to reach me: luciasirtori@ssw.com.au
 - 😄 Pronouns: She/her
